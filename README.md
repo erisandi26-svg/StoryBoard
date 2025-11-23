@@ -1,0 +1,1 @@
+"Cinta sejati tidak tenggelam." — Kisah cinta abadi antara Eleanor dan William di tengah tragedi karamnya SS Central America, terungkap kembali ratusan tahun kemudian melalui sebuah foto yang selamat dari dasar samudra.
